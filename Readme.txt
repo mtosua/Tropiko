@@ -1,6 +1,17 @@
 ----Proyecto Examen------
 
 Aimar Mora Ballesteros
+Iker
+Ander
+Inez
+Unax
+Hiem
+Julen
+mariana
+Aitor
+Aaron
+Pablo
+Asier
 
 
 Txutxi Martínez González
